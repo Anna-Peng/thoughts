@@ -12,9 +12,9 @@ It may lay on your belly and tuck away its nose.\
 You have things to do and places to be.\
 But hold, spread and stay still.\
 Let my fluffy cat warm your softest spot.\
-How does it know?\
-It’s called instinct,\ 
-something words don’t own.\
+How does it know? \
+It’s called instinct, \ 
+something words don’t own.
 
 ### A businessman who’s met them all
 
@@ -69,7 +69,37 @@ Come back 3 years following, \
 Then I’ve met them all?\
 \
 No, sir.\
-You will still not have met him all.\
+You will still not have met him all.
+
+### The ball, the sofa, and the bowl
+
+A child’s world is full of friends and foes.\
+Each little thing is an either-or:\
+The ball is her bestie as they can together roll.\
+The sofa is a thief as it hides away her toys.\
+The chipped bowl is the embattled comrade, \
+as it was her fault that it got broke.\
+\
+The gap between the bed-mattress and the frame is her trusted keeper, \
+where all her secrets are securely stowed.\
+The secrets that the cabinet shall not know—\
+the cabinet is a traitor, as it lets monsters abode.\
+\
+A child’s world is full of friends and foes.\
+They call it imagination I call it relations.\
+A child knows how things think and feel,\
+before she knows what they are for.\
+I think it is a superior wisdom, \ 
+to be able to think so.\
+\
+(Unlike children,\
+We know things but not how they feel.\
+We buy a new chair and we own it all.\
+There are no more mysterious relations for us to solve.\
+\
+I still remember my old friends and foes.\
+I hope they’ll visit—\
+I pray that I don’t yet own them all.)
 
 ### Lost senses
 
@@ -104,4 +134,77 @@ Glass half full or half empty (sorry about the cliche).\
 Half full you say.\
 Perhaps so.\
 Be patient, Anna.\
-Bid your time.\
+Bid your time.
+
+### Fundamentals and principles
+
+How many times we are told that, \
+The world is fundamental and principled\
+Thus,\
+The failure to grasp the reality,\
+Is the frailties and deficiency in us,\
+Not the fault of how the world comes about.\
+\
+We know the world is fundamental because\
+We have senses—\
+To see,\
+To hear,\
+To smell,\
+To taste.\
+\
+But,\
+Gauge my eyes out,\
+The vibrancy of the sun-soaked sky still imprints on my retina.\
+Blow my ears out,\
+The timbre of the bass still dictates my heart beats.\
+Slice my nose out,\
+The scent of the chicken broth still takes me back home.\
+Age my tastebuds,\
+The piquancy of the vinaigrette still arouses my hunger.\
+\
+Counting the senses,\
+Is to discount the dimensions of knowing and living.\
+\
+We know the world is principled because we can theorise it—\
+In units,\
+In direction,\
+In relativity,\
+In scale.\
+\
+But,\
+Why am I still ignorant of:\
+how big-hearted or small-headed I actually am?\
+where I am travelling— forwards, backwards or simply circular?\
+what the junctions are when my soul is shared and passed on?\
+how existential or profound it is to be or not to be?\
+\
+If the world is so fundamental,\
+Suffering should end when senses cease.\
+If the world is so principled,\
+The act of being should be definite as soon as I exist.\
+\
+I think,\
+It’s either the fundamental-ness and the principled-ness of this world,\
+or me and no-me.\
+
+### The train journey
+The train races for the feet rested.\
+But if the feet are rested how are journeys made?\
+\
+Are we not just passerby? And of what?\
+Should origin matters?\
+Should direction?\
+Should distance?\
+We are taught to make to destinations without making the journeys.\
+\
+The speed we are travelling,\
+Is the distance missed.\
+Who’s to say fast cars are better than slow carts?\
+\
+A step made is strength gained.\
+Bumble sideway at times.\
+But muscles all the same.\
+\
+A journey made is a soul reclaimed.\
+Your body may be damned,\
+But rebirth is nigh.
