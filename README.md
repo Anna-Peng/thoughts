@@ -1,6 +1,6 @@
 # Collection of some childish things that I wrote
-(Things I wrote when my brain is playing tricks on me...
-PS. I call these "poems" but I have no idea how poems work...)
+(Things I wrote when my mind wonders...
+PS. I call these "poems" but I have no idea how poetry works...)
 
 ### MY CAT
 If you are sad I’ll lend you my cat.\
