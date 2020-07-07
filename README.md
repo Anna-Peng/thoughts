@@ -76,7 +76,7 @@ You will still not have met him all.
 A child’s world is full of friends and foes.\
 Each little thing is an either-or:\
 The ball is her bestie as they can together roll.\
-The sofa is a thief as it hides away her toys.\
+The sofa is a thief as it hides away her doll.\
 The chipped bowl is the embattled comrade, \
 as it was her fault that it got broke.\
 \
