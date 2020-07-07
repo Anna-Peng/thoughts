@@ -1,19 +1,21 @@
 # Collection of some childish things that I wrote
+(Things I wrote when my brain is playing tricks on me...
+PS. I call these "poems" but I have no idea how poems work...)
 
 ### MY CAT
 If you are sad I’ll lend you my cat.\
 My words are clumsy but my cat is fluffy.\
 You need not be good or know what to do.\
 Just lie down flat and let you belly exposed.\
-It’ll find you and your softest spot.\
-
+It’ll find you and your softest spot.
+\
 The trick is to be still and to not rush.\
 It may lay on your belly and tuck away its nose.\
 You have things to do and places to be.\
 But hold, spread and stay still.\
 Let my fluffy cat warm your softest spot.\
 How does it know? \
-It’s called instinct, \ 
+It’s called instinct,\
 something words don’t own.
 
 ### A businessman who’s met them all
@@ -55,7 +57,7 @@ Where do I meet them? Asks the businessman\
 Visit the house with cackling fire in Shropshire,\
 There lives Tycho— \
 the sparkling eyes, \
-the enchanting smiles, \
+the enchanting smiles,\
 the roaring belly.\
 \
 Then I’ve met them all?\
@@ -80,7 +82,7 @@ The sofa is a thief as it hides away her doll.\
 The chipped bowl is the embattled comrade, \
 as it was her fault that it got broke.\
 \
-The gap between the bed-mattress and the frame is her trusted keeper, \
+The gap between the bed-mattress and the frame is her trusted keeper,\
 where all her secrets are securely stowed.\
 The secrets that the cabinet shall not know—\
 the cabinet is a traitor, as it lets monsters abode.\
@@ -89,7 +91,7 @@ A child’s world is full of friends and foes.\
 They call it imagination I call it relations.\
 A child knows how things think and feel,\
 before she knows what they are for.\
-I think it is a superior wisdom, \ 
+I think it is a superior wisdom,\
 to be able to think so.\
 \
 (Unlike children,\
@@ -100,6 +102,24 @@ There are no more mysterious relations for us to solve.\
 I still remember my old friends and foes.\
 I hope they’ll visit—\
 I pray that I don’t yet own them all.)
+
+### For little James
+The precious stones to my eyes are your—\
+Ten toes planted on your two feet.\
+\
+Tunnelling through to all the miraculous machinery—\
+Arrived at your belly button.\
+\
+I’ll plant many raspberries to your—\
+two cheeks, backside.\
+\
+The morning starts with with your—\
+two eyes, bright light.\
+\
+Baby,\
+How beautifully formed you are.\
+Time is renewed,\
+Seconds now tick with your heart.
 
 ### Lost senses
 
