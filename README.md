@@ -119,32 +119,15 @@ two eyes, bright light.\
 Baby,\
 How beautifully formed you are.\
 Time is renewed,\
-Seconds now tick with your heart.
-
-The precious stones to my eyes are your—
-Ten toes planted on your two feet
-
-Tunnelling through to all the miraculous machinery—
-Arriving at your belly button.
-
-I’ll plant many raspberries to your—
-two cheeks, backside
-
-The morning starts with with your—
-Two eyes, bright light.
-
-Baby,
-How beautifully formed you are.
-Time is renewed,
-The seconds now tick with your heart.
-
-From this moment, 
-Our heart beats not as one,
-But two.
-Our worlds divide, yet intricately linked.
-The time’s essence, is now your existence
-I’ll be in your life,
-For a life time.
+Seconds now tick with your heart.\
+\
+From this moment, \
+Our heart beats not as one,\
+But two.\
+Our worlds divide, yet intricately linked.\
+The time’s essence, is now your existence\
+I’ll be in your life,\
+For a life time.\
 
 
 ### Lost senses
