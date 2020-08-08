@@ -6,7 +6,7 @@ PS. I call these "poems" but I have no idea how poetry works...)
 If you are sad I’ll lend you my cat.\
 My words are clumsy but my cat is fluffy.\
 You need not be good or know what to do.\
-Just lie down flat and let you belly exposed.\
+Just lie down flat and let your belly exposed.\
 It’ll find you and your softest spot.
 \
 The trick is to be still and to not rush.\
@@ -18,7 +18,7 @@ How does it know? \
 It’s called instinct,\
 something words don’t own.
 
-### A businessman who’s met them all
+### A businessman who’s met them all (For little Tycho)
 
 Honk honk away you go\
 Here comes the businessman who’s met them all\
@@ -121,6 +121,32 @@ How beautifully formed you are.\
 Time is renewed,\
 Seconds now tick with your heart.
 
+The precious stones to my eyes are your—
+Ten toes planted on your two feet
+
+Tunnelling through to all the miraculous machinery—
+Arriving at your belly button.
+
+I’ll plant many raspberries to your—
+two cheeks, backside
+
+The morning starts with with your—
+Two eyes, bright light.
+
+Baby,
+How beautifully formed you are.
+Time is renewed,
+The seconds now tick with your heart.
+
+From this moment, 
+Our heart beats not as one,
+But two.
+Our worlds divide, yet intricately linked.
+The time’s essence, is now your existence
+I’ll be in your life,
+For a life time.
+
+
 ### Lost senses
 
 And all I can do is\
@@ -207,7 +233,7 @@ I think,\
 It’s either the fundamental-ness and the principled-ness of this world,\
 or me and no-me.\
 
-### The train journey
+### The latenight train journey
 The train races for the feet rested.\
 But if the feet are rested how are journeys made?\
 \
