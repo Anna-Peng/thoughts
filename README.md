@@ -58,12 +58,13 @@ My words are clumsy\
 &nbsp; but my cat is fluffy.\
 You need not be good \
 &nbsp; or know what to do.\
-Just lie down flat and \
-&nbsp; let your belly exposed.\
+Just lie down flat and let your belly exposed.\
 It’ll find you and your softest spot.
 
-The trick is to be still and to not rush.\
-It may lay on your belly and tuck away its nose.\
+The trick is to be still \
+and to not rush.\
+It may lay on your belly \
+and tuck away its nose.\
 You have things to do and places to be.\
 But hold, spread and stay still.
 
@@ -135,25 +136,26 @@ Each little thing is an either-or:\
 The ball is her bestie as they can together roll.\
 The sofa is a thief as it hides away her doll.\
 The chipped bowl is the embattled comrade, \
-as it was her fault that it got broke.\
-\
-The gap between the bed-mattress and the frame is her trusted keeper,\
+as it was her fault that it got broke.
+
+The gap between the bed-mattress and the frame is her\
+trusted keeper,\
 where all her secrets are securely stowed.\
 The secrets that the cabinet shall not know—\
-the cabinet is a traitor, as it lets monsters abode.\
-\
+the cabinet is a traitor, as it lets monsters abode.
+
 A child’s world is full of friends and foes.\
 They call it imagination I call it relations.\
-A child knows how things think and feel,\
+A child knows how each thing thinks and feels,\
 before she knows what they are for.\
 I think it is a superior wisdom,\
-to be able to think so.\
-\
+to be able to think so.
+
 (Unlike children,\
 We know things but not how they feel.\
-We buy a new chair and we own it all.\
-There are no more mysterious relations for us to solve.\
-\
+We buy a chair and we own it all.\
+There are no more mysterious relations for us to solve.
+
 I still remember my old friends and foes.\
 I hope they’ll visit—\
 I pray that I don’t yet own them all.)
@@ -162,13 +164,13 @@ I pray that I don’t yet own them all.)
 The precious stones to my eyes are your—\
 Ten toes planted on your two feet.
 
-Tunnelling through to all the miraculous machinery—\
+Tunnelling through all the miraculous machinery—\
 Arrived at your belly button.
 
 I’ll plant many raspberries to your—\
 two cheeks, backside.
 
-The morning starts with with your—\
+The morning starts with your—\
 two eyes, bright light.
 
 Baby,\
@@ -208,7 +210,8 @@ The painful awakening to this knowledge.
 
 People told me this awakening is an\
 opportunity.\
-Knowledge is better than ignorance and arrogance.
+Knowledge is better than \
+ignorance and arrogance.
 
 Existing with half a soul\
 With half senses,\
@@ -292,15 +295,13 @@ But muscles all the same.
 A journey made is a soul reclaimed.\
 Your body may be damned,\
 But rebirth is nigh.
-
-
 ## In Return to Your Recitation
 ---
 You uttered syllables \
 made of frosty needles,\
 First they stopped my heart \
 and froze my thought,\
-then my blood gushed inward,\
+Then my blood gushed inward,\
 leaving my skin frozen,\
 organs boiled.\
 My remains are artistically perforated, \
