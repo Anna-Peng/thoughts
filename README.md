@@ -3,12 +3,12 @@
 PS. I call these "poems" but I have no idea how poetry works...)
 
 ## Angel's Light and Momma's Touch
-Wakey wakey,
-Let the angel shines the light into your eyes,
-to fizz away the rays and replace them with colours,
-to fuzz away the flutters and replace them with forms.	
+Wakey wakey,\
+Let the angel shines the light into your eyes,\
+to fizz away the rays and replace them with colours,\
+to fuzz away the flutters and replace them with forms.\
 
-Look at these fingers and look at these toes,
+Look at these fingers and look at these toes,\
 Woe, they are clumsy and won’t stay still.
 
 Let me and my friends help, says Mr. Snake,
