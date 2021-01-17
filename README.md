@@ -2,125 +2,134 @@
 (Things I wrote when my mind wonders...
 PS. I call these "poems" but I have no idea how poetry works...)
 
+
 ## Angel's Light and Momma's Touch
+---
 Wakey wakey,\
 Let the angel shines the light into your eyes,\
 to fizz away the rays and replace them with colours,\
-to fuzz away the flutters and replace them with forms.\
+to fuzz away the flutters and replace them with forms.
 
 Look at these fingers and look at these toes,\
 Woe, they are clumsy and won’t stay still.
 
-Let me and my friends help, says Mr. Snake,
-	we’ll wrap around them and act like leashes,
+Let me and my friends help, says Mr. Snake,\
+	we’ll wrap around them and act like leashes,\
 for you to rein.
 
-Look at this button and look at this belly,
+Look at this button and look at this belly,\
 Woe, it is bloaty and won’t carry onward.
 
-Let me help, says Mrs. Pangolin,
-	I’ll curl up into a ball and act like a wheel,
+Let me help, says Mrs. Pangolin,\
+	I’ll curl up into a ball and act like a wheel,\
 for you to roll forward.
 
-Alas,
-Mr snake and your friends are no good, 
-	for I cannot balance left and right.
+Alas,\
+Mr snake and your friends are no good,\
+	for I cannot balance left and right.\
 I fumble and tumble and go all ropey.
 
-Alas, 
-Mrs Pangolin you are no good, 
-	for I cannot stay still.
+Alas, \
+Mrs Pangolin you are no good, \
+	for I cannot stay still.\
 I roll forward and onward and cannot halt.
 
-Cry no more, I’ll take away your woe.
+Cry no more,\
+I’ll take away your woe.
 
-Let my gentle hands squeeze your fingers and tickle your toes,
+Let my gentle hands squeeze your fingers and tickle your toes,\
 	they’ll teach you how to reach and how to stand.
 
-Let my bosom receive your belly and your heart,
+Let my bosom receive your belly and your heart,\
 	it’ll teach you how to carry love and how to be strong.
 
-With mamma’s gentle touches,
-I can now see,
-			grasp,
-				stand,
-					explore, 
-						and plot a million adventures.
+With mamma’s gentle touches,\
+I can now see,\
+&nbsp;			grasp,\
+&nbsp;&nbsp;				stand,\
+&nbsp;&nbsp;&nbsp;					explore, \
+&nbsp;&nbsp;&nbsp;&nbsp;						and plot a million adventures.
 
 
-### MY CAT
+## MY CAT
+---
 If you are sad I’ll lend you my cat.\
-My words are clumsy but my cat is fluffy.\
-You need not be good or know what to do.\
-Just lie down flat and let your belly exposed.\
+My words are clumsy\
+&nbsp; but my cat is fluffy.\
+You need not be good \
+&nbsp; or know what to do.\
+Just lie down flat and \
+&nbsp; let your belly exposed.\
 It’ll find you and your softest spot.
-\
+
 The trick is to be still and to not rush.\
 It may lay on your belly and tuck away its nose.\
 You have things to do and places to be.\
-But hold, spread and stay still.\
-Let my fluffy cat warm your softest spot.\
+But hold, spread and stay still.
+
+Let my fluffy cat \
+warm your softest spot.\
 How does it know? \
 It’s called instinct,\
 something words don’t own.
 
-### A businessman who’s met them all (For little Tycho)
-
+## A businessman who’s met them all (For little Tycho)
+---
 Honk honk away you go\
-Here comes the businessman who’s met them all\
-\
+Here comes the businessman who’s met them all
+
 Who have you met? the birdwatcher asks\
 I’ve met a giant who is tree-tall\
-You have met them all, the birdwatcher notes\
-\
+You have met them all, the birdwatcher notes
+
 Who have you met? the trainspotter asks\
 I’ve met a lady whose hair is waterfall-soft\
-You have met them all, the trainspotter hoots\
-\
+You have met them all, the trainspotter hoots
+
 Who have you met? the stargazer asks\
 I’ve met a singer whose neck is swan-long\
-You have met them all, the stargazer lulls\
-\
-A businessman who’s met them all.\
-\
+You have met them all, the stargazer lulls
+
+A businessman who’s met them all.
+
 Not all, says the dog-walker
-\
-How would you know! Hollers the businessman\
-\
+
+How would you know! Hollers the businessman
+
 Have you met the eyes that make nights days?\
-No, says the businessman\
-\
+No, says the businessman
+
 Have you met the smiles that make hearts race?\
-No, says the businessman\
-\
+No, says the businessman
+
 Have you met the roaring belly that makes the ground shakes? \
-No, says the businessman\
-\
-Then sir, you have not met them all.\
-\
-Where do I meet them? Asks the businessman\
-\
+No, says the businessman
+
+Then sir, you have not met them all.
+
+Where do I meet them? Asks the businessman
+
 Visit the house with cackling fire in Shropshire,\
 There lives Tycho— \
 the sparkling eyes, \
 the enchanting smiles,\
-the roaring belly.\
-\
-Then I’ve met them all?\
-\
+the roaring belly.
+
+Then I’ve met them all?
+
 No, sir. You won’t.
-\
+
 Come back 3 years following, \
 13 years following, \
-30 years following and many more.\
-\
-Then I’ve met them all?\
-\
+30 years following and many more.
+
+Then I’ve met them all?
+
 No, sir.\
 You will still not have met him all.
 
-### The ball, the sofa, and the bowl
-
+## The Ball, the Sofa, and the Bowl
+---
 A child’s world is full of friends and foes.\
 Each little thing is an either-or:\
 The ball is her bestie as they can together roll.\
@@ -148,8 +157,8 @@ There are no more mysterious relations for us to solve.\
 I still remember my old friends and foes.\
 I hope they’ll visit—\
 I pray that I don’t yet own them all.)
-
-### For little James
+## For little James
+-----
 The precious stones to my eyes are your—\
 Ten toes planted on your two feet.\
 \
@@ -173,11 +182,9 @@ But two.\
 Our worlds divide, yet intricately linked.\
 The time’s essence, is now your existence\
 I’ll be in your life,\
-For a life time.\
-
-
-### Lost senses
-
+For a life time.
+## Lost senses
+----
 And all I can do is\
 To See,\
 Not seeing,\
@@ -211,8 +218,8 @@ Perhaps so.\
 Be patient, Anna.\
 Bid your time.
 
-### Fundamentals and principles
-
+## Fundamentals and principles
+----
 How many times we are told that, \
 The world is fundamental and principled\
 Thus,\
@@ -262,7 +269,8 @@ I think,\
 It’s either the fundamental-ness and the principled-ness of this world,\
 or me and no-me.\
 
-### The latenight train journey
+## The Late Night Train Journey
+---
 The train races for the feet rested.\
 But if the feet are rested how are journeys made?\
 \
@@ -285,44 +293,45 @@ Your body may be damned,\
 But rebirth is nigh.
 
 
-## In return for your poem
-You uttered syllables 
-made of frosty needles,
-First they stopped my heart 
-and froze my thought,
-then my blood gushed inward,
-leaving my skin frozen,
-organs boiled.
-My remains are artistically perforated, 
+## In Return to Your Recitation
+---
+You uttered syllables \
+made of frosty needles,\
+First they stopped my heart \
+and froze my thought,\
+then my blood gushed inward,\
+leaving my skin frozen,\
+organs boiled.\
+My remains are artistically perforated, \
 by lava and icicles.
 
-Summer on this island always comes with a chill,
-a perfect climate 
-that begets strange creatures on this soil.
-This summer,
-the roses blessed the air with their sweet spoil.
-With your guidance,
-I plucked the red petals glistening under 
-the hot dew.
-I imagined being your hands -- strong and determined,
-yet gentle enough,
+Summer on this island always comes with a chill,\
+a perfect climate \
+that begets strange creatures on this soil.\
+This summer,\
+the roses blessed the air with their sweet spoil.\
+With your guidance,\
+I plucked the red petals glistening under \
+the hot dew.\
+I imagined being your hands -- strong and determined,\
+yet gentle enough,\
 so not to scrunch their delicate veins.
 
-I am a woman yet a man,
-always looking to other faces for a simile.
-You are the closest match I find,
-Beautiful and beastly,
+I am a woman yet a man,\
+always looking to other faces for a simile.\
+You are the closest match I find,\
+Beautiful and beastly,\
 almost like a child that is meant to be.
 
-A hungry child,
-Like me,
-But unlike me,
-You are simpler with your terms.
-Love and food,
+A hungry child,\
+Like me,\
+But unlike me,\
+You are simpler with your terms.\
+Love and food,\
 are all you need.
 
-I am fond of children and fond of you.
-You know you are not a child 
-but not I.
-A child is all I want to be,
+I am fond of children and fond of you.\
+You know you are not a child \
+but not I.\
+A child is all I want to be,\
 but cannot be.
