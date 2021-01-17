@@ -2,6 +2,52 @@
 (Things I wrote when my mind wonders...
 PS. I call these "poems" but I have no idea how poetry works...)
 
+## Angel's Light and Momma's Touch
+Wakey wakey,
+Let the angel shines the light into your eyes,
+to fizz away the rays and replace them with colours,
+to fuzz away the flutters and replace them with forms.	
+
+Look at these fingers and look at these toes,
+Woe, they are clumsy and won’t stay still.
+
+Let me and my friends help, says Mr. Snake,
+	we’ll wrap around them and act like leashes,
+for you to rein.
+
+Look at this button and look at this belly,
+Woe, it is bloaty and won’t carry onward.
+
+Let me help, says Mrs. Pangolin,
+	I’ll curl up into a ball and act like a wheel,
+for you to roll forward.
+
+Alas,
+Mr snake and your friends are no good, 
+	for I cannot balance left and right.
+I fumble and tumble and go all ropey.
+
+Alas, 
+Mrs Pangolin you are no good, 
+	for I cannot stay still.
+I roll forward and onward and cannot halt.
+
+Cry no more, I’ll take away your woe.
+
+Let my gentle hands squeeze your fingers and tickle your toes,
+	they’ll teach you how to reach and how to stand.
+
+Let my bosom receive your belly and your heart,
+	it’ll teach you how to carry love and how to be strong.
+
+With mamma’s gentle touches,
+I can now see,
+			grasp,
+				stand,
+					explore, 
+						and plot a million adventures.
+
+
 ### MY CAT
 If you are sad I’ll lend you my cat.\
 My words are clumsy but my cat is fluffy.\
@@ -237,3 +283,46 @@ But muscles all the same.\
 A journey made is a soul reclaimed.\
 Your body may be damned,\
 But rebirth is nigh.
+
+
+## In return for your poem
+You uttered syllables 
+made of frosty needles,
+First they stopped my heart 
+and froze my thought,
+then my blood gushed inward,
+leaving my skin frozen,
+organs boiled.
+My remains are artistically perforated, 
+by lava and icicles.
+
+Summer on this island always comes with a chill,
+a perfect climate 
+that begets strange creatures on this soil.
+This summer,
+the roses blessed the air with their sweet spoil.
+With your guidance,
+I plucked the red petals glistening under 
+the hot dew.
+I imagined being your hands -- strong and determined,
+yet gentle enough,
+so not to scrunch their delicate veins.
+
+I am a woman yet a man,
+always looking to other faces for a simile.
+You are the closest match I find,
+Beautiful and beastly,
+almost like a child that is meant to be.
+
+A hungry child,
+Like me,
+But unlike me,
+You are simpler with your terms.
+Love and food,
+are all you need.
+
+I am fond of children and fond of you.
+You know you are not a child 
+but not I.
+A child is all I want to be,
+but cannot be.
