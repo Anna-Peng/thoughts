@@ -160,29 +160,30 @@ I pray that I don’t yet own them all.)
 ## For little James
 -----
 The precious stones to my eyes are your—\
-Ten toes planted on your two feet.\
-\
+Ten toes planted on your two feet.
+
 Tunnelling through to all the miraculous machinery—\
-Arrived at your belly button.\
-\
+Arrived at your belly button.
+
 I’ll plant many raspberries to your—\
-two cheeks, backside.\
-\
+two cheeks, backside.
+
 The morning starts with with your—\
-two eyes, bright light.\
-\
+two eyes, bright light.
+
 Baby,\
 How beautifully formed you are.\
 Time is renewed,\
-Seconds now tick with your heart.\
-\
+Seconds now tick with your heart.
+
 From this moment, \
 Our heart beats not as one,\
 But two.\
-Our worlds divide, yet intricately linked.\
+Our worlds divide, yet entwined.\
 The time’s essence, is now your existence\
 I’ll be in your life,\
 For a life time.
+
 ## Lost senses
 ----
 And all I can do is\
@@ -193,26 +194,26 @@ To see without time,\
 But with a chaos that wrangles within.\
 It is frightening—\
 Where does the self go when one exists only: to see, to hear, to touch, and to move,\
-Kinaesthetically in a linearly predictable manner.\
-\
+Kinaesthetically in a linearly predictable manner.
+
 I,\
 see without the ears,\
 hear without the eyes,\
 touch without the force,\
-move without the heat.\
-\
+move without the heat.
+
 The most frightening thing is,\
 It’s always been this way.\
-The painful awakening to this knowledge.\
-\
+The painful awakening to this knowledge.
+
 People told me this awakening is an\
 opportunity.\
-Knowledge is better than ignorance and arrogance.\
-\
+Knowledge is better than ignorance and arrogance.
+
 Existing with half a soul\
 With half senses,\
-Glass half full or half empty (sorry about the cliche).\
-\
+Glass half full or half empty (sorry about the cliche).
+
 Half full you say.\
 Perhaps so.\
 Be patient, Anna.\
@@ -225,15 +226,15 @@ The world is fundamental and principled\
 Thus,\
 The failure to grasp the reality,\
 Is the frailties and deficiency in us,\
-Not the fault of how the world comes about.\
-\
+Not the fault of how the world comes about.
+
 We know the world is fundamental because\
 We have senses—\
 To see,\
 To hear,\
 To smell,\
-To taste.\
-\
+To taste.
+
 But,\
 Gauge my eyes out,\
 The vibrancy of the sun-soaked sky still imprints on my retina.\
@@ -242,52 +243,52 @@ The timbre of the bass still dictates my heart beats.\
 Slice my nose out,\
 The scent of the chicken broth still takes me back home.\
 Age my tastebuds,\
-The piquancy of the vinaigrette still arouses my hunger.\
-\
+The piquancy of the vinaigrette still arouses my hunger.
+
 Counting the senses,\
-Is to discount the dimensions of knowing and living.\
-\
+Is to discount the dimensions of knowing and living.
+
 We know the world is principled because we can theorise it—\
 In units,\
 In direction,\
 In relativity,\
-In scale.\
-\
+In scale.
+
 But,\
 Why am I still ignorant of:\
 how big-hearted or small-headed I actually am?\
 where I am travelling— forwards, backwards or simply circular?\
 what the junctions are when my soul is shared and passed on?\
-how existential or profound it is to be or not to be?\
-\
+how existential or profound it is to be or not to be?
+
 If the world is so fundamental,\
 Suffering should end when senses cease.\
 If the world is so principled,\
-The act of being should be definite as soon as I exist.\
-\
+The act of being should be definite as soon as I exist.
+
 I think,\
 It’s either the fundamental-ness and the principled-ness of this world,\
-or me and no-me.\
+or me and no-me.
 
 ## The Late Night Train Journey
 ---
 The train races for the feet rested.\
-But if the feet are rested how are journeys made?\
-\
+But if the feet are rested how are journeys made?
+
 Are we not just passerby? And of what?\
 Should origin matters?\
 Should direction?\
 Should distance?\
-We are taught to make to destinations without making the journeys.\
-\
+We are taught to make to destinations without making the journeys.
+
 The speed we are travelling,\
 Is the distance missed.\
-Who’s to say fast cars are better than slow carts?\
-\
+Who’s to say fast cars are better than slow carts?
+
 A step made is strength gained.\
 Bumble sideway at times.\
-But muscles all the same.\
-\
+But muscles all the same.
+
 A journey made is a soul reclaimed.\
 Your body may be damned,\
 But rebirth is nigh.
