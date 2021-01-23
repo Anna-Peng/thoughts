@@ -179,7 +179,7 @@ Time is renewed,\
 Seconds now tick with your heart.
 
 From this moment, \
-Our heart beats not as one,\
+My heart beats not as one,\
 But two.\
 Our worlds divide, yet entwined.\
 The time’s essence, is now your existence\
