@@ -1,6 +1,6 @@
 # Collection of some childish things that I wrote
 (Things I wrote when my mind wonders...
-PS. I call these "poems" but I have no idea how poetry works...)
+I call these "poems" but I have no idea how poetry works...)
 
 
 ## Angel's Light and Momma's Touch
