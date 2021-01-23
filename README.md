@@ -262,7 +262,7 @@ Why am I still ignorant of:\
 how big-hearted or small-headed I actually am?\
 where I am travelling— forwards, backwards or simply circular?\
 what the junctions are when my soul is shared and passed on?\
-how existential or mythical it is to be or not to be?
+how existential or exponential it is to be or not to be?
 
 If the world is so fundamental,\
 Suffering should end when senses cease.\
