@@ -1,11 +1,6 @@
 # Collection of some childish things that I wrote
-<<<<<<< HEAD
-Not a writer, just being human
-=======
-(Things I wrote when my mind wonders...
-I call these "poems" but I have no idea how poetry works...)
 
->>>>>>> c051b2c9d4d51ecd4899087c891a49ab3d1b26a0
+## Not a writer, just being human
 
 ## Angel's Light and Momma's Touch
 ---
