@@ -1,6 +1,6 @@
 # Collection of some childish things that I wrote
 
-## Not a writer, just being human
+Not a writer, just being human
 
 ## Angel's Light and Momma's Touch
 ---
