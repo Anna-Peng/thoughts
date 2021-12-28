@@ -183,7 +183,7 @@ But two.\
 Our worlds divide, yet entwined.\
 The time’s essence, is now your existence\
 I’ll be in your life,\
-For a life time.
+For many a life's time.
 
 ## Lost senses
 ----
