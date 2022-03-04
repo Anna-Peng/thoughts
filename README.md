@@ -219,7 +219,7 @@ Glass half full or half empty (sorry about the cliche).
 Half full you say.\
 Perhaps so.\
 Be patient, Anna.\
-Bid your time.
+Bide your time.
 
 ## Fundamentals and principles
 ----
@@ -336,3 +336,36 @@ You know you are not a child \
 but not I.\
 A child is all I want to be,\
 but cannot be.
+
+## Shape
+What is the shape \
+of a chair\
+Missing its joints and necessary extensions for bodily contacts,\
+— a chair is a mere abomination.
+
+What is the shape \
+of a cup\
+Lacking its warmth and the reservoir of comfort,\
+— A cup is a silly frivolity
+
+An executor at least employs the right tools for his mortal slave, \
+A chain that restricts the ankle,\
+A scythe that severs the muscles
+
+Benevolence  is now endowed without corporal touches\
+A world devoid of physical contacts\
+— is it not the most abominable of all?\
+The suffering is unseen and unknown\
+— A pain that is unsoothable.
+
+I sit in a cafe\
+With no one but a metaverse of young souls \
+— in bytes that flows through anything concrete
+
+The only thing that touches\
+Is the last beat of the song.\
+The music that I do not agree with\
+But the only thing that reverberates my skin.
+
+Other than that\
+Our world seems to have turned itself senseless.
