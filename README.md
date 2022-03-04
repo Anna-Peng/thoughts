@@ -348,12 +348,12 @@ of a cup\
 Lacking its warmth and the reservoir of comfort,\
 — A cup is a silly frivolity
 
-An executor at least employs the right tools for his mortal slave, \
+An executor at least employs the right tools for his mortal foe, \
 A chain that restricts the ankle,\
 A scythe that severs the muscles
 
-Benevolence  is now endowed without corporal touches\
-A world devoid of physical contacts\
+Benevolence now knows no corpus,\
+A wolrd of care without any physical tool\
 — is it not the most abominable of all?\
 The suffering is unseen and unknown\
 — A pain that is unsoothable.
