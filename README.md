@@ -368,4 +368,5 @@ The music that I do not agree with\
 But the only thing that reverberates my skin.
 
 Other than that\
-Our world seems to have turned itself senseless.
+Our world seems to have turned itself into
+an abominable folly.
