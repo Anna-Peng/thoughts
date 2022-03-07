@@ -350,22 +350,22 @@ Lacking its warmth and the reservoir of comfort,\
 
 An executor at least employs the right tools for his mortal foe, \
 A chain that restricts the ankle,\
-A scythe that severs the muscles
+A scythe that severs the muscle
 
 Benevolence now knows no corpus,\
-A wolrd of care without any physical tool\
+A world of care in the absence of form\
 — is it not the most abominable of all?\
-The suffering is unseen and unknown\
+Suffering is untouched and everflowing\
 — A pain that is unsoothable.
 
 I sit in a cafe\
-With no one but a metaverse of young souls \
+With no one but a metaverse of souls \
 — in bytes that flows through anything concrete
 
 The only thing that touches\
 Is the last beat of the song.\
 The music that I do not agree with\
-But the only thing that reverberates my skin.
+But the only thing that reverberates through my skin.
 
 Other than that\
 Our world seems to have turned itself into
