@@ -358,14 +358,14 @@ A world of care in the absence of form\
 Suffering is untouched and everflowing\
 — A pain that is unsoothable.
 
-I sit in this moment,
+We sit in this moment, \
 With no one but a metaverse of souls \
 — in bytes that flows through anything concrete
 
 The only thing that touches\
 Is the last beat of the drum roll.\
-A rhythm that I do not agree with\
-But the only thing that reverberates through my skin.
+An odious rhythm, \
+But the only thing that reverberates through our skins.
 
 Other than that\
 Our world seems to have turned itself into
