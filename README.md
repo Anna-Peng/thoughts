@@ -352,21 +352,21 @@ An executor at least employs the right tools for his mortal foe, \
 A chain that restricts the ankle,\
 A scythe that severs the muscle
 
-Benevolence now knows no corpus,\
-A world of care in the absence of form\
-— is it not the most abominable of all?\
-Suffering is untouched and everflowing\
-— A pain that is unsoothable.
+
+Malice now knows no selfhood, \
+A sea of cries drown in the presence of a Voice, \
+Benevolence now knows no corpus, \
+A world of care extended in the absence of form. \
+— aren't these the most abominable of all?
 
 We sit in this moment, \
 With no one but a metaverse of souls \
 — in bytes that flows through anything concrete
 
-The only thing that touches\
-Is the last beat of the drum roll.\
+The only thing that touches \
+Is the beat of the drum roll. \
 An odious rhythm, \
 But the only thing that reverberates through our skins.
 
-Other than that\
-Our world seems to have turned itself into
-an abominable folly.
+Other than that \
+This world seems to have turned itself into an abominable folly. 
