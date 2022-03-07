@@ -358,13 +358,13 @@ A world of care in the absence of form\
 Suffering is untouched and everflowing\
 — A pain that is unsoothable.
 
-I sit in a cafe\
+I sit in this moment,
 With no one but a metaverse of souls \
 — in bytes that flows through anything concrete
 
 The only thing that touches\
-Is the last beat of the song.\
-The music that I do not agree with\
+Is the last beat of the drum roll.\
+A rhythm that I do not agree with\
 But the only thing that reverberates through my skin.
 
 Other than that\
