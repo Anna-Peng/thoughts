@@ -20,7 +20,7 @@ a scythe that severs the muscle
 Malice now knows no selfhood, \
 a sea of cries drown in the presence of one Voice, \
 Benevolence now knows no corpus, \
-a world of care extended in the absence of any form. \
+a world of care extended in the absence of any form. 
 
 We sit in this moment, \
 with no one but a metaverse of souls \
