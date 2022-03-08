@@ -339,7 +339,7 @@ But muscles all the same.
 
 A journey made is a soul reclaimed.\
 Your body may be damned,\
-But rebirth is nigh.
+rebirth sings wren.
 ## In Return to Your Recitation
 ---
 You uttered syllables \
