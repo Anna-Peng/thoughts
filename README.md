@@ -21,17 +21,16 @@ Malice now knows no selfhood, \
 a sea of cries drown in the presence of one Voice, \
 Benevolence now knows no corpus, \
 a world of care extended in the absence of any form. \
-— aren't these the most abominable of all?
 
 We sit in this moment, \
 with no one but a metaverse of souls \
 — in bytes that flows through anything concrete
 
-The only thing that touches \
-Is the beat of the drum roll. \
-an odious rhythm, \
+The only thing that touches, \
+Are the beats of drum roll. \
 Boom boom boom, boom bang boom, \
-Humming along our skins and organs.
+An odious rhythm, \
+Ripples through our skins and organs.
 
 
 Other than that \
