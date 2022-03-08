@@ -354,9 +354,9 @@ A scythe that severs the muscle
 
 
 Malice now knows no selfhood, \
-A sea of cries drown in the presence of a Voice, \
+A sea of cries drown in the presence of one Voice, \
 Benevolence now knows no corpus, \
-A world of care extended in the absence of form. \
+A world of care extended in the absence of any form. \
 — aren't these the most abominable of all?
 
 We sit in this moment, \
