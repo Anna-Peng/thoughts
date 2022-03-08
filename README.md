@@ -366,7 +366,10 @@ With no one but a metaverse of souls \
 The only thing that touches \
 Is the beat of the drum roll. \
 An odious rhythm, \
-But the only thing that reverberates through our skins.
+Boom boom boom, boom bang boom, \
+Humming along our skins and organs.
+
 
 Other than that \
-This world seems to have turned itself into an abominable folly. 
+This world seems to have turned itself 
+into an abominable folly. 
