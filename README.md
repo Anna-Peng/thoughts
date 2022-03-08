@@ -1,6 +1,42 @@
 # Collection of some childish things that I wrote
 
 Not a writer, just being human
+## Shape
+What is the shape \
+of a chair\
+missing its joints and necessary extensions for bodily contacts,\
+— a chair is a mere abomination.
+
+What is the shape \
+of a cup\
+lacking its warmth and the reservoir of comfort,\
+— A cup is a silly frivolity
+
+An executor at least employs the right tools for his mortal foe, \
+a chain that restricts the ankle,\
+a scythe that severs the muscle
+
+
+Malice now knows no selfhood, \
+a sea of cries drown in the presence of one Voice, \
+Benevolence now knows no corpus, \
+a world of care extended in the absence of any form. \
+— aren't these the most abominable of all?
+
+We sit in this moment, \
+with no one but a metaverse of souls \
+— in bytes that flows through anything concrete
+
+The only thing that touches \
+Is the beat of the drum roll. \
+an odious rhythm, \
+Boom boom boom, boom bang boom, \
+Humming along our skins and organs.
+
+
+Other than that \
+This world seems to have turned itself \
+into an abominable folly. 
 
 ## Angel's Light and Momma's Touch
 ---
@@ -337,39 +373,3 @@ but not I.\
 A child is all I want to be,\
 but cannot be.
 
-## Shape
-What is the shape \
-of a chair\
-missing its joints and necessary extensions for bodily contacts,\
-— a chair is a mere abomination.
-
-What is the shape \
-of a cup\
-lacking its warmth and the reservoir of comfort,\
-— A cup is a silly frivolity
-
-An executor at least employs the right tools for his mortal foe, \
-a chain that restricts the ankle,\
-a scythe that severs the muscle
-
-
-Malice now knows no selfhood, \
-a sea of cries drown in the presence of one Voice, \
-Benevolence now knows no corpus, \
-a world of care extended in the absence of any form. \
-— aren't these the most abominable of all?
-
-We sit in this moment, \
-with no one but a metaverse of souls \
-— in bytes that flows through anything concrete
-
-The only thing that touches \
-Is the beat of the drum roll. \
-an odious rhythm, \
-Boom boom boom, boom bang boom, \
-Humming along our skins and organs.
-
-
-Other than that \
-This world seems to have turned itself \
-into an abominable folly. 
