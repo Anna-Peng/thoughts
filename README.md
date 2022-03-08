@@ -233,7 +233,7 @@ For many a life's time.
 
 ## Lost senses
 ----
-And all I can do is\
+And all I can do is\Cancel changes
 To See,\
 Not seeing,\
 And not saw.\
@@ -339,7 +339,7 @@ But muscles all the same.
 
 A journey made is a soul reclaimed.\
 Your body may be damned,\
-Yet rebirth sings wren.
+Yet a song in a wren's nest.
 ## In Return to Your Recitation
 ---
 You uttered syllables \
