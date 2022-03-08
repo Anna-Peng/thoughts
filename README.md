@@ -340,36 +340,36 @@ but cannot be.
 ## Shape
 What is the shape \
 of a chair\
-Missing its joints and necessary extensions for bodily contacts,\
+missing its joints and necessary extensions for bodily contacts,\
 — a chair is a mere abomination.
 
 What is the shape \
 of a cup\
-Lacking its warmth and the reservoir of comfort,\
+lacking its warmth and the reservoir of comfort,\
 — A cup is a silly frivolity
 
 An executor at least employs the right tools for his mortal foe, \
-A chain that restricts the ankle,\
-A scythe that severs the muscle
+a chain that restricts the ankle,\
+a scythe that severs the muscle
 
 
 Malice now knows no selfhood, \
-A sea of cries drown in the presence of one Voice, \
+a sea of cries drown in the presence of one Voice, \
 Benevolence now knows no corpus, \
-A world of care extended in the absence of any form. \
+a world of care extended in the absence of any form. \
 — aren't these the most abominable of all?
 
 We sit in this moment, \
-With no one but a metaverse of souls \
+with no one but a metaverse of souls \
 — in bytes that flows through anything concrete
 
 The only thing that touches \
 Is the beat of the drum roll. \
-An odious rhythm, \
+an odious rhythm, \
 Boom boom boom, boom bang boom, \
 Humming along our skins and organs.
 
 
 Other than that \
-This world seems to have turned itself 
+This world seems to have turned itself \
 into an abominable folly. 
