@@ -1,6 +1,17 @@
 # Collection of some childish things that I wrote
 
 Not a writer, just being human
+## The way we choose
+Say cheese or say screech, \
+Blare a song or howl a sigh, \
+The depth of despair and the height of determination. \
+Be alive, be human, be conscious. \
+The path we choose is the junctions we arrive at. \
+The bond we have is the path we took. \
+We'll all be forgiven, \
+because we are here, \
+And we will be there.
+
 ## Shape
 What is the shape \
 of a chair\
