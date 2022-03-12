@@ -6,10 +6,12 @@ Say cheese or say screech, \
 Blare a song or howl a sigh, \
 The depth of despair and the height of determination. \
 Be alive, be human, be conscious. \
-The path we choose is the \
-	junction we arrive at. \
-The bond we forge is the \
-	path we are on. \
+The path we choose \
+    is the \
+        junction we arrive at. \
+The bond we forge \
+    is the \
+        path we are on. \
 We'll all be forgiven, \
 because we are here, \
 And we will be there.
