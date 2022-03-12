@@ -7,11 +7,11 @@ Blare a song or howl a sigh, \
 The depth of despair and the height of determination. \
 Be alive, be human, be conscious. \
 The path we choose \
-    is the \
-        junction we arrive at. \
+&nbsp;&nbsp; is the \
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; junction we arrive at. \
 The bond we forge \
-    is the \
-        path we are on. \
+&nbsp;&nbsp; is the \
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; path we are on. \
 We'll all be forgiven, \
 because we are here, \
 And we will be there.
