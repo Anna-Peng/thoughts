@@ -1,6 +1,29 @@
 # Collection of some childish things that I wrote
 
 Not a writer, just being human
+## A goodnight poem
+Through the wrongness you showed me what could be gained. \
+Before you taught me how to ascend, \
+Me-thought I had an imp so much disdained.
+
+The Imp of Perverse, \
+Murders playfully and inanely, \
+Until he was comically slain. \
+A cautionary tale for me to retain.
+
+What if an imp it ain't, \
+But the secrecy it contains. \
+What if you extrude matter from me so dense, \
+And it was actually a saint.
+ 
+Now the secrecy is no longer, \
+Me-think we are golden again.
+
+Let's be very wrong together and rightfully ordained. \
+I'll kiss you goodnight and \
+hope to love you very much \
+Very soon again. 
+
 ## The way we choose
 Say cheese or say screech, \
 Blare a song or howl a sigh, \
