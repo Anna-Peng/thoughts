@@ -3,6 +3,7 @@
 Not a writer, just being human
 ## A goodnight prose
 Through wrongness you showed me what could be gained. \
+(Though not without some learner's pain). \
 Before you taught me how to ascend, \
 Me-thought I had an imp so much disdained.
 
@@ -17,7 +18,7 @@ What if you extrude matter from me so dense, \
 And it is actually a saint.
  
 Now the secrecy is no more, \
-Me-think we are golden again. \
+Me-think we are golden in twain. \
 Let us be very wrong together and \
 rightfully ordained.
 
