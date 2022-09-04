@@ -1,7 +1,7 @@
 # Collection of some childish things that I wrote
 
 Not a writer, just being human
-## A goodnight poem
+## A goodnight prose
 Through wrongness you showed me what could be gained. \
 Before you taught me how to ascend, \
 Me-thought I had an imp so much disdained.
