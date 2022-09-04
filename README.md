@@ -2,7 +2,7 @@
 
 Not a writer, just being human
 ## A goodnight prose
-Through wrongness you showed me what could be gained. \
+Through wrongness you showed me what to be gained. \
 (Though not without some learner's pain). \
 Before you taught me how to ascend, \
 Me-thought I had an imp so much disdained.
@@ -15,7 +15,7 @@ A cautionary tale for me to retain.
 What if an imp it ain't, \
 But the secrecy it contains. \
 What if you extrude matter from me so dense, \
-And it is actually a saint.
+And it actually a saint.
  
 Now the secrecy is no more, \
 Me-think we are golden in twain. \
