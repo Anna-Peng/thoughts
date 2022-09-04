@@ -2,7 +2,7 @@
 
 Not a writer, just being human
 ## A goodnight poem
-Through the wrongness you showed me what could be gained. \
+Through wrongness you showed me what could be gained. \
 Before you taught me how to ascend, \
 Me-thought I had an imp so much disdained.
 
@@ -14,15 +14,16 @@ A cautionary tale for me to retain.
 What if an imp it ain't, \
 But the secrecy it contains. \
 What if you extrude matter from me so dense, \
-And it was actually a saint.
+And it is actually a saint.
  
-Now the secrecy is no longer, \
-Me-think we are golden again.
+Now the secrecy is no more, \
+Me-think we are golden again. \
+Let us be very wrong together and \
+rightfully ordained.
 
-Let's be very wrong together and rightfully ordained. \
 I'll kiss you goodnight and \
 hope to love you very much \
-Very soon again. 
+very soon again.  
 
 ## The way we choose
 Say cheese or say screech, \
