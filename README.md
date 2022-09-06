@@ -15,10 +15,10 @@ A cautionary tale for me to retain.
 What if an imp it ain't, \
 But the secrecy it contains. \
 What if you extrude matter from me so dense, \
-And it actually a saint.
+And it is actually a saint.
  
 Now the secrecy is no more, \
-Me-think we are golden in twain. \
+Me-think we are gold larks in twain. \
 Let us be very wrong together and \
 rightfully ordained.
 
