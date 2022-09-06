@@ -18,7 +18,7 @@ What if you extrude matter from me so dense, \
 And it is actually a saint.
  
 Now the secrecy is no more, \
-Me-think we are gold larks in twain. \
+Me-think we are golden larks in twain. \
 Let us be very wrong together and \
 rightfully ordained.
 
