@@ -147,7 +147,7 @@ Let my fluffy cat, \
 warm your softest spot.\
 How does it know? \
 It’s called instinct,\
-something words don’t own.
+something words don’t own. \
 . \
 . \
 . \
@@ -167,7 +167,7 @@ we'll always end up in the same place -- \
 Laughing. Panting. Together. \
 How do I know? \
 It's called generosity, \
-Something we both share.
+Something we both share. \
 . \
 . \
 . \
