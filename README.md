@@ -157,7 +157,8 @@ something words don’t own. \
 You may shout one-two-three, \
 	and GO! \
 I may cry three-two-one, \
-	and Bang! \
+	and Bang! 
+	
 We'll hop on the boulder, \
 Circle around the bench, \
 And hurl towards the tree. \
@@ -177,7 +178,8 @@ Something we both share. \
 Your heart beats like soldiers marching \
 the trembling floor \
 My pulse races like fighter jets breaking \
-the dense dark cloud \
+the dense dark cloud 
+
 But you'll hold my hand, \
 As I hold yours. \
 You'll whisper something hellishly cunning in my ear, \
