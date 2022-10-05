@@ -127,28 +127,31 @@ I can now see,\
 
 ## MY CAT
 ---
-**If you are sad**  \
+**If you are sad,**  \
 &nbsp;&nbsp;&nbsp; I’ll lend you my cat.\
-My words are clumsy\
+My words are clumsy,\
 &nbsp; but my cat is fluffy.\
-You need not be good \
+You need not be good, \
 &nbsp; or know what to do.\
 Just lie down flat and let your belly exposed.\
 It’ll find you and your softest spot.
 
-The trick is to be still \
+The trick is to be still, \
 and to not rush.\
-It may lay on your belly \
+It may lay on your belly, \
 and tuck away its nose.\
 You have things to do and places to be.\
 But hold, spread and stay still.
 
-Let my fluffy cat \
+Let my fluffy cat, \
 warm your softest spot.\
 How does it know? \
 It’s called instinct,\
 something words don’t own.
-
+. \
+. \
+. \
+. \
 **If you are happy,** \
 &nbsp;&nbsp;&nbsp; I'll challenge you a race. \
 You may shout one-two-three, \
@@ -165,7 +168,10 @@ Laughing. Panting. Together. \
 How do I know? \
 It's called generosity, \
 Something we both share.
-
+. \
+. \
+. \
+. \
 **If you are scared,** \
 &nbsp;&nbsp;&nbsp; then I'm terrified. \
 Your heart beats like soldiers marching \
