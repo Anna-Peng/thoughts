@@ -153,7 +153,7 @@ something words don’t own.
 . \
 . \
 **If you are happy,** \
-&nbsp;&nbsp;&nbsp; I'll challenge you a race. \
+&nbsp;&nbsp;&nbsp; I'll challenge you to a race. \
 You may shout one-two-three, \
 	and GO! \
 I may cry three-two-one, \
