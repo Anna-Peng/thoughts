@@ -176,9 +176,10 @@ Something we both share. \
 **If you are scared,** \
 &nbsp;&nbsp;&nbsp; then I'm terrified. \
 Your heart beats like soldiers marching - \
-the trembling floor \
+the trembling floor. \
 My pulse races like fighter jets breaking -\
-the dense dark cloud \
+the dense dark cloud.
+
 But you'll hold my hand, \
 As I hold yours. \
 You'll whisper something hellishly cunning in my ear, \
