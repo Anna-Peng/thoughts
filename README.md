@@ -161,7 +161,7 @@ I may cry three-two-one, \
 	
 We'll hop on the boulder, \
 Circle around the bench, \
-And hurl towards the tree. \
+And hurl towards the tree.
 
 No matter who wins, \
 we'll always end up in the same place -- \
