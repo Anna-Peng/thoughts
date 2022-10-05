@@ -157,7 +157,7 @@ something words don’t own. \
 You may shout one-two-three, \
 	and GO! \
 I may cry three-two-one, \
-	and Bang! 
+	and BANG! 
 	
 We'll hop on the boulder, \
 Circle around the bench, \
