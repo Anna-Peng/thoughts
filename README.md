@@ -175,16 +175,17 @@ Something we both share. \
 . \
 **If you are scared,** \
 &nbsp;&nbsp;&nbsp; then I'm terrified. \
-Your heart beats like soldiers marching \
+Your heart beats like soldiers marching - \
 the trembling floor \
-My pulse races like fighter jets breaking \
-the dense dark cloud 
-
+My pulse races like fighter jets breaking -\
+the dense dark cloud \
 But you'll hold my hand, \
 As I hold yours. \
 You'll whisper something hellishly cunning in my ear, \
-As I roar something outrageously funny to the air. 
+As I roar something outrageously funny to the air.
 
+However shakey the ground may be, \
+we'll march at the speed the fear ought not compete. \
 How do I know? \
 It's called spirit, \
 Something we have aplenty.
