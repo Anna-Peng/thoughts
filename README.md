@@ -127,7 +127,8 @@ I can now see,\
 
 ## MY CAT
 ---
-If you are sad I’ll lend you my cat.\
+**If you are sad**  \
+&nbsp;&nbsp;&nbsp; I’ll lend you my cat.\
 My words are clumsy\
 &nbsp; but my cat is fluffy.\
 You need not be good \
@@ -147,6 +148,38 @@ warm your softest spot.\
 How does it know? \
 It’s called instinct,\
 something words don’t own.
+
+**If you are happy,** \
+&nbsp;&nbsp;&nbsp; I'll challenge you a race. \
+You may shout one-two-three, \
+	and GO! \
+I may cry three-two-one, \
+	and Bang! \
+We'll hop on the boulder, \
+Circle around the bench, \
+And hurl towards the tree. \
+
+No matter who wins, \
+we'll always end up in the same place -- \
+Laughing. Panting. Together. \
+How do I know? \
+It's called generosity, \
+Something we both share.
+
+**If you are scared,** \
+&nbsp;&nbsp;&nbsp; then I'm terrified. \
+Your heart beats like soldiers marching \
+the trembling floor \
+My pulse races like fighter jets breaking \
+the dense dark cloud \
+But you'll hold my hand, \
+As I hold yours. \
+You'll whisper something hellishly cunning in my ear, \
+As I roar something outrageously funny to the air. 
+
+How do I know? \
+It's called spirit, \
+Something we have aplenty.
 
 ## A businessman who’s met them all (For little Tycho)
 ---
