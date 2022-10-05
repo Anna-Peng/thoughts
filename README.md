@@ -164,7 +164,7 @@ And hurl towards the tree. \
 
 No matter who wins, \
 we'll always end up in the same place -- \
-Laughing. Panting. Together. \
+Laughing. Panting. Doubling. \
 How do I know? \
 It's called generosity, \
 Something we both share. \
