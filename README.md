@@ -185,7 +185,7 @@ You'll whisper something hellishly cunning in my ear, \
 As I roar something outrageously funny to the air.
 
 However shakey the ground may be, \
-we'll march at the speed the fear ought not compete. \
+we'll march at the speed fear ought not compete. \
 How do I know? \
 It's called spirit, \
 Something we have aplenty.
