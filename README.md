@@ -1,6 +1,96 @@
 # Collection of some childish things that I wrote
 
 Not a writer, just being human
+## Little Pirdie Bo
+Chippittey and chirppettey. \
+We are the Two Legged Pird. \
+A proud specimen, \
+Famous for never going astray.\
+We are happy with our left leg,\
+And pleased about our right leg.
+
+Our left leg tells us the direction,\
+And our right leg follows with discretion.\
+Our left leg stays close to our right leg,\
+Nothing ever gets lost.
+
+Chippittey and chirppetty,\
+We Two Legged Pird don't ever go far.\
+Our land abounds with food -\
+All within our strides.\
+The perimeters are our map -\
+Our legs the compass.\
+Everything ever so clear,\
+We never walk astray.
+
+Uncle Pirdy Fu,\
+Look at my wings!\
+Look! Look!\
+When I leap with both my left leg and my right leg,\
+The wind carries my wings,\
+And sends me afloat!
+
+Noooo! No no!\
+Come back down right now Little Pirdy Bo,\
+We are the Two Legged Pird,\
+We shall never float on air!\
+You can find no perimeter up in the air,\
+And you will be lost!
+
+Uncle Pirdy Fu grabbed Little Pirdy Bo's leg.\
+He tugged and pulled and pulled and tugged,\
+Until his face became red.\
+But with the wind so strong,\
+It takes Little Pirdy Bo and Uncle Pirdy Fu both off the square.
+
+Aunty Pirdy Mae hurried and gripped Uncle Pirdy Fu's leg,\
+She tugged and pulled and pulled and tugged,\
+Until her neck was totally stretched.\
+But the wind was stronger than her,\
+Now Aunty Pirdy Mae is also up into the sphere.
+
+Grandma Pirdy and Grandpa Pirdy all joined in,\
+They tugged and pulled and pulled and tugged,\
+Until all became red and stretched.\
+But with Little Pirdy Bo's wings now fully unfurled,\
+They are now all carried up in the air.
+
+Uncle Pirdy disapaired,\
+Aunty Pirdy fearfully stared,\
+Grandma Pirdy and Grandpa Pirdy trembled and squealed.\
+
+Their left legs lost all directions,\
+Their right legs forgot all discretions.\
+They kicked both legs so hard --\
+Hoping to find the ground.\
+But in the air none can be found!
+
+Little Pirdy Bo said,\
+In the air there is no perimeter,\
+No triangle, circle or square.\
+But there are width and height,\
+And all the depth to explore.\
+Now let go of my legs,\
+And stop kicking and squealing.\
+Look how I spread my wings,\
+And the world goes underneath me!
+
+Uncle Pirdy Fu timidly flutters his wings,\
+And up he goes,\
+Aunty Pirdy Mae is next to try,\
+And down she glides,\
+Grandma and Grandad Pirdy, though terrified, follow suit,\
+And gently they rise.
+
+Little Pirdy Bo,\
+Has wings splendidly displayed.\
+Little Pirdy Bo,\
+Has wings wider than all strides.\
+Little Pirdy Bo,\
+Soars higher than all Pirdies,\
+Little Pirdy Bo,\
+Flies.
+
 ## A goodnight prose
 Through wrongness you showed me what to be gained. \
 (Though not without some learner's pain). \
