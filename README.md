@@ -24,7 +24,7 @@ Everything ever so clear,\
 We never walk astray.
 
 Uncle Pirdy Fu,\
-Look at my wings!\
+Look at me!\
 Look! Look!\
 When I leap with both my left leg and my right leg,\
 The wind carries my wings,\
