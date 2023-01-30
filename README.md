@@ -54,7 +54,7 @@ Grandma Pirdy and Grandpa Pirdy all joined in,\
 They tugged and pulled and pulled and tugged,\
 Until all became red and stretched.\
 But with Little Pirdy Bo's wings now fully unfurled,\
-They are now all carried up in the air.
+They are now all carried up into the air.
 
 Uncle Pirdy despaired,\
 Aunty Pirdy fearfully stared,\
