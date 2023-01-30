@@ -66,7 +66,7 @@ They kicked both legs so hard --\
 Hoping to find the ground.\
 But in the air none can be found!
 
-Little Pirdy Bo said,\
+Little Pirdy Bo says,\
 In the air there is no perimeter,\
 No triangle, circle or square.\
 But there are width and height,\
@@ -80,7 +80,7 @@ Uncle Pirdy Fu timidly flutters his wings,\
 And up he goes,\
 Aunty Pirdy Mae is next to try,\
 And down she glides,\
-Grandma and Grandad Pirdy, though terrified, follow suit,\
+Grandma and Grandpa Pirdy, though terrified, follow suit,\
 And gently they rise.
 
 Little Pirdy Bo,\
