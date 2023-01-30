@@ -41,7 +41,7 @@ Uncle Pirdy Fu grabbed Little Pirdy Bo's leg.\
 He tugged and pulled and pulled and tugged,\
 Until his face became red.\
 But with the wind so strong,\
-It takes Little Pirdy Bo and Uncle Pirdy Fu both off the square.
+Both Little Pirdy Bo and Uncle Pirdy Fu were taken off the square.
 
 Aunty Pirdy Mae hurried and gripped Uncle Pirdy Fu's leg,\
 She tugged and pulled and pulled and tugged,\
