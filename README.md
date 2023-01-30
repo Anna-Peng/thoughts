@@ -58,7 +58,7 @@ They are now all carried up into the air.
 
 Uncle Pirdy despaired,\
 Aunty Pirdy fearfully stared,\
-Grandma Pirdy and Grandpa Pirdy trembled and squealed.
+Grandma Pirdy and Grandpa Pirdy trembled and teared.
 
 Their left legs lost all directions,\
 Their right legs forgot all discretions.\
@@ -72,7 +72,7 @@ No triangle, circle or square.\
 But there are width and height,\
 And all the depth to hearts' desire.\
 Now let go of my legs,\
-And stop kicking and squealing.\
+And stop kicking and trembling.\
 Look how I spread my wings,\
 And the world goes underneath me!
 
