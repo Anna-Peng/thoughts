@@ -35,7 +35,7 @@ Come back down right now Little Pirdy Bo,\
 We are the Two Legged Pird,\
 We shall never float on air!\
 You can find no perimeter up in the air,\
-And you would be lost!
+And you would be lost!\
 Oh, how you could stray!
 
 Uncle Pirdy Fu grabbed Little Pirdy Bo's leg.\
