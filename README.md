@@ -57,7 +57,7 @@ They are now all carried up in the air.
 
 Uncle Pirdy disapaired,\
 Aunty Pirdy fearfully stared,\
-Grandma Pirdy and Grandpa Pirdy trembled and squealed.\
+Grandma Pirdy and Grandpa Pirdy trembled and squealed.
 
 Their left legs lost all directions,\
 Their right legs forgot all discretions.\
@@ -69,7 +69,7 @@ Little Pirdy Bo said,\
 In the air there is no perimeter,\
 No triangle, circle or square.\
 But there are width and height,\
-And all the depth to explore.\
+And all the depth to hearts' desire.\
 Now let go of my legs,\
 And stop kicking and squealing.\
 Look how I spread my wings,\
