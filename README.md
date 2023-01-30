@@ -55,7 +55,7 @@ Until all became red and stretched.\
 But with Little Pirdy Bo's wings now fully unfurled,\
 They are now all carried up in the air.
 
-Uncle Pirdy disapaired,\
+Uncle Pirdy despaired,\
 Aunty Pirdy fearfully stared,\
 Grandma Pirdy and Grandpa Pirdy trembled and squealed.
 
