@@ -72,7 +72,7 @@ No triangle, circle or square.\
 But there are width and height,\
 And all the depth to hearts' desire.\
 Now let go of my legs,\
-And stop kicking and trembling.\
+And stop kicking and squealing.\
 Look how I spread my wings,\
 And the world goes underneath me!
 
