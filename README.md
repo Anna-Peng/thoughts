@@ -40,13 +40,13 @@ Oh, how you could stray!
 
 Uncle Pirdy Fu grabbed Little Pirdy Bo's leg.\
 He tugged and pulled and pulled and tugged,\
-Until his face became red.\
+Until his face was totally red.\
 But with the wind so strong,\
 Both Little Pirdy Bo and Uncle Pirdy Fu were taken off the square.
 
 Aunty Pirdy Mae hurried and gripped Uncle Pirdy Fu's leg,\
 She tugged and pulled and pulled and tugged,\
-Until her neck was totally stretched.\
+Until her neck was almost stretched.\
 But the wind was stronger than her,\
 Now Aunty Pirdy Mae is also up into the sphere.
 
