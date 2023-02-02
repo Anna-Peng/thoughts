@@ -216,7 +216,7 @@ I can now see,\
 &nbsp;&nbsp;&nbsp;&nbsp;						and plot a million adventures.
 
 
-## MY CAT
+## My Cat, A Race, and A Joke
 ---
 **If you are sad,**  \
 &nbsp;&nbsp;&nbsp; I’ll lend you my cat.\
