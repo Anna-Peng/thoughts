@@ -92,6 +92,22 @@ Soars higher than all Pirdies,\
 Little Pirdy Bo,\
 Flies.
 
+## First Born on a De-Cem-Ber
+
+Hurrah! You are here! \
+First born child on the -\
+First hot day and cold night of De-cem-ber.\
+From Orient to Occident,\
+Worlds are to be spun upside-down.\
+From moments to years beyond,\
+Hearts are to be worn inside-out.\
+Not yet spoken,\
+Yet words are already pale.\
+Now,\
+Let the sun and stars make the tune,\
+And mommy and daddy recount this miracle.
+
+
 ## A goodnight prose
 Through wrongness you showed me what to be gained. \
 (Though not without some learner's pain). \
