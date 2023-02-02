@@ -47,14 +47,14 @@ Both Little Pirdy Bo and Uncle Pirdy Fu were taken off the square.
 Aunty Pirdy Mae hurried and gripped Uncle Pirdy Fu's leg,\
 She tugged and pulled and pulled and tugged,\
 Until her neck was almost stretched.\
-But the wind was stronger than her,\
-Now Aunty Pirdy Mae is also up into the sphere.
+But with the wind stronger than her,\
+Aunty Pirdy Mae is also up into the sphere.
 
 Grandma Pirdy and Grandpa Pirdy all joined in,\
 They tugged and pulled and pulled and tugged,\
 Until all became red and stretched.\
 But with Little Pirdy Bo's wings now fully unfurled,\
-They are now all carried up into the air.
+They are all carried up into the air.
 
 Uncle Pirdy despaired,\
 Aunty Pirdy fearfully stared,\
