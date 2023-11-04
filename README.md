@@ -6,7 +6,7 @@ Not a writer, just being human
 
 I wonder what it feels like, \
 To sleep next to a pride of lions, \
-To sleep on top of the swaying reefs, \
+To sleep atop of swaying reefs, \
 Or to sleep inside a mound of warm autumn leaves.
 
 I wonder what it feels like, \
