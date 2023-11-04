@@ -14,7 +14,7 @@ To sleep under Chagall's blue, \
 To sleep afloat with imzad's tune, \
 Or to sleep enwrapped with Saint-Exupéry's dune.
 
-When fats melts away, \
+When fats melt away, \
 Bones ground to trace, \
 Blood becomes clay, \
 And all the désolé, \
