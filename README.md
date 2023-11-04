@@ -1,6 +1,29 @@
 # Collection of some childish things that I wrote
 
 Not a writer, just being human
+
+## Sleeping with Wind, Sand and Star
+
+I wonder what it feels like, 
+To sleep next to a pride of lions,
+To sleep on top of the swaying reefs,
+Or to sleep inside a mound of warm autumn leaves.
+
+I wonder what it feels like,
+To sleep under Chagall's blue,
+To sleep afloat with imzad's tune,
+Or to sleep enwrapped with Saint-Exupéry's dune.
+
+When fats melts away,
+Bones ground to trace,
+Blood becomes clay,
+And all the désolé, 
+Are repurposed on the last Sunday,
+I hope the fickleness -
+ Of remaining brains,
+Will find a way -
+ To these dream array.
+
 ## Little Pirdie Bo
 Chippittey and chirppettey. \
 We are the Two Legged Pird. \
