@@ -17,7 +17,7 @@ Or to sleep enwrapped with Saint-Exupéry's dune.
 When fats melt away, \
 Bones ground to trace, \
 Blood becomes clay, \
-And all the désolé, \
+And all the désolés, \
 Are repurposed on the last Sunday, \
 I hope the fickleness - \
  Of remaining brains, \
