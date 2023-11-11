@@ -2,7 +2,7 @@
 
 Not a writer, just being human
 
-## Sleeping with Wind, Sand and Star
+## Sleeping with Wind, Sand and Stars
 
 I wonder what it feels like, \
 To sleep next to a pride of lions, \
@@ -22,7 +22,7 @@ Are repurposed on the last Sunday, \
 I hope the fickleness - \
  Of remaining brains, \
 Will find a way - \
- To these dream array.
+ To these dreams array.
 
 ## Little Pirdie Bo
 Chippittey and chirppettey. \
