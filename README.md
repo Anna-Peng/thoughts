@@ -79,8 +79,8 @@ Until all became red and stretched.\
 But with Little Pirdy Bo's wings now fully unfurled,\
 They are all carried up into the air.
 
-Uncle Pirdy despaired,\
-Aunty Pirdy fearfully stared,\
+Uncle Pirdy Fu despaired,\
+Aunty Pirdy Mae fearfully stared,\
 Grandma Pirdy and Grandpa Pirdy trembled and teared.
 
 Their left legs lost all directions,\
