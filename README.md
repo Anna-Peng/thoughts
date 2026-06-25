@@ -20,7 +20,7 @@ Blood becomes clay, \
 And all the désolés, \
 Are repurposed on the last Sunday, \
 I hope the fickleness - \
- Of remaining brains, \
+ Of remaining cells, \
 Will find a way - \
  To these dreams array.
 
