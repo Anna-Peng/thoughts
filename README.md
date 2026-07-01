@@ -492,7 +492,7 @@ Blow my ears out,\
 The timbre of the bass still dictates my heart beats.\
 Slice my nose out,\
 The scent of the chicken broth still takes me back home.\
-Age my tastebuds,\
+Burn my tastebuds,\
 The piquancy of the vinaigrette still arouses my hunger.
 
 Counting the senses,\
